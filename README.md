@@ -1,1 +1,0 @@
-# Brightlight_practical-2
